@@ -8,7 +8,7 @@ Currently I enjoy exploring making games from scratch as much as possible with *
 
 What I love the most:
 
-- My son 👦
+- My sons 👦👦
 - My wife 👱‍♀️
 - Games 🕹
 - Listening to movie and game OST 🎧
